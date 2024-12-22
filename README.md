@@ -36,7 +36,7 @@ Subscribe to catch my latest videos on karate, tech, bikes, and more!
 
 ## 📬 Get in Touch  
 Feel free to connect with me:  
-- 📧 Email: pavara@example.com  
+- 📧 Email: pavara.kekulawala@gmail.com  
 - 🎥 YouTube: [@pavarafpv](https://www.youtube.com/@pavarafpv)  
 
 Thank you for visiting my page! 🚀  
